@@ -1,1 +1,1 @@
-Life moves fast when you do what you want.
+Like a god
